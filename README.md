@@ -53,4 +53,4 @@ Before setting up the application, ensure that you have the following installed 
 	
 	
 	
-For further assistance, please contact anjana.20230066@iit.ac.lk
+For further assistance, please contact anjanarusiru360@gmail.com
